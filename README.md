@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning nothing.
 - 👯 I’m looking to collaborate on nothing.
 - 🤔 I’m looking for help with nothing.
-- 😄 Interests: retirement.
-- ⚡ Fun fact: Free will is an illusion.
+- 💬 Don't ask me about anything.
+- ⚡ Fun fact: You are the only real person in the world. Your friends and family and everyone else are all just a figments of your imagination and its about time you wake up. Everyone misses you.
